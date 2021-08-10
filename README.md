@@ -4,4 +4,4 @@ I'm a self-driven, trilingual student, and fast learner who seeks challenging pr
 
 Want to discuss ideas/opportunities/tech/projects or just want to chat? Ping me on [LinkedIn](https://www.linkedin.com/in/mferuscomelo/) or [email me](mailto:me[at]milanfc[dot]info).
 
-Check out my [website](https://milanfc.info)!
+Check out my [website](https://milanfc.info/?utm_source=referral&utm_medium=github&utm_campaign=github_profile_README)!
